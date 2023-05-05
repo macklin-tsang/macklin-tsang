@@ -7,6 +7,6 @@ Hey guys. I'm Macklin.
 
 Quick info about me:
   - Graduated from VCS in June 2022. 🎓🕊️
-  - Currently a first-year university business student, started in the fall semester of 2022. 📈🍁
+  - Currently a second-year university business student, started in the fall semester of 2022. 📈🍁
 
 Thanks for checking my page out!
